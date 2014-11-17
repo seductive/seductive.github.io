@@ -11,22 +11,22 @@ title: Pornstar Keiran Lee
 ## Keiran Lee Biography
 <b>Keiran Lee</b> is arguably one the most popular English performers in the adult entertainment business today. He is of 1/2 Indian descent.
 <br />
-<div class="separator" style="clear: both; text-align: center;">
+
 <img alt="Keiran Lee" border="0" src="http://2.bp.blogspot.com/-xGaxmYQu5_8/VD0cG2CH2eI/AAAAAAAABi0/YqPgaVmr5IA/s1600/the-sex-factor-670x330.jpg" width="400" /></div>
 <br />
 <b>Adam Lee Diksa</b>&nbsp;birth name of Keiran was born January 15, 1984 in Derby, England.<br />
-<div class="separator" style="clear: both; text-align: center;">
+
 <img alt="Keiran Lee" border="0" src="http://2.bp.blogspot.com/-44ga5uwrVlI/VD0cZ-tU1gI/AAAAAAAABi8/Yk_ITEAAmSQ/s1600/Keiran.jpg" width="400" /></div>
 <br />
 <h2>
 Keiran Lee Career</h2>
 Lee is currently an exclusive contract performer for Brazzers. In 2012, the company insured his penis for $1 million (&#163;645,000) with Lloyd's of London and placed a billboard advertisement with a photo of him on Sunset Boulevard. The billboard was nominated at the 2013 XBIZ Awards for "Marketing Campaign of the Year". In February 2012, Lee appeared on The Jerry Springer Show in an episode titled "Porn Star Sex". In October 2013, Lee made his feature film directorial debut with Hot Chicks Big Fangs for Digital Playground. He has appeared in 918 videos for Brazzers as of August 2014  He will also be hosting the upcoming reality-show The Sex Factor in 2014 along with Tori Black, Lexi Belle, Remy LaCroix, and Belle Knox.
 <br />
-<div class="separator" style="clear: both; text-align: center;">
+
 <img alt="Keiran Lee" border="0" src="http://2.bp.blogspot.com/-NG1hbOd773U/VD0crrLlfbI/AAAAAAAABjE/BPc1As58qSo/s1600/Keiran-Lee.jpg" width="400" /></div>
 <br />
 <pre style="text-align: center;">Keiran Lee Married to <b>Puma Swede</b>.</pre>
-<div class="separator" style="clear: both; text-align: center;">
+
 <img alt="Keiran Lee" border="0" src="http://3.bp.blogspot.com/-D9rA6CWxFh8/VD0dKiJQwvI/AAAAAAAABjM/sbSoQc0UPp0/s1600/Keiran-Cock.jpg" width="400" /></div>
 <h2 style="text-align: left;">
 Keiran Lee Filmography</h2>
